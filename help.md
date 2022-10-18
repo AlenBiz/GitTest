@@ -1,2 +1,0 @@
-jobbizyaev@gmail.com
-AlenBizgit
